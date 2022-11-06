@@ -1,4 +1,4 @@
-![IMG_2700](https://user-images.githubusercontent.com/92092946/200178831-08da92d2-160e-4445-a357-917389ebb8b7.JPG)
+![Frame 21](https://user-images.githubusercontent.com/92092946/200178934-9872b5d9-a30f-45a3-bfb6-da90aa3b647a.png)
 
 
 ### Hi there I'm a Digital Product Designer and Developer from Germany

@@ -1,4 +1,3 @@
-![Frame 20](https://user-images.githubusercontent.com/92092946/200167097-54aff3a5-82a6-4ed8-8836-6f4bea1a8062.png)
 ![IMG_3175](https://user-images.githubusercontent.com/92092946/200178762-87e5a481-0220-47d2-b08e-ac0615fe45e1.GIF)
 
 

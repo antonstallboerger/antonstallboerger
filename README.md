@@ -2,6 +2,7 @@
 
 
 [Twitter](https://twitter.com/AntonStalli)
+
 [Portfolio](https://www.antonstallboerger.com/)
 
 <!--
